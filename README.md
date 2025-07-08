@@ -19,4 +19,4 @@
 4. SEO优化与关键词布局
 为了让“日本AV免费”这一关键词排名更高，SEO优化是不可忽视的一部分。首先，在标题标签和Meta描述中自然融入目标关键词，并确保这些关键词具有吸引力。例如，“免费观看日本AV高清”或“免费高清日本AV资源”，这样不仅能提升排名，还能提高点击率。此外，合理使用相关长尾关键词，如“高清日本AV观看”或“免费日本AV在线播放”，能够扩大覆盖范围，帮助搜索引擎更好地理解页面内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/zzy1238/47878 ）</span>
